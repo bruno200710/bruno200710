@@ -11,5 +11,5 @@ Você pode entrar em contato comigo 📫
 
  00001103242647sp@al.educacao.sp.gov.br
 
-!{![image](https://github.com/bruno200710/bruno200710/assets/171831055/57f6aa3c-96ad-4001-974e-bbed0b2e71d7)
-}(link)
+![image](https://github.com/bruno200710/bruno200710/assets/171831055/57f6aa3c-96ad-4001-974e-bbed0b2e71d7)
+
